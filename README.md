@@ -1,1 +1,1 @@
-# trabalho-sobre-IA
+# TrAbAlHo-SoBrE-IA
